@@ -1,1 +1,0 @@
-# Gelece-in-S-rd-r-lebilir-ehirleri-Hackathonu
